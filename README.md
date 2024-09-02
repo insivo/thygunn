@@ -1,0 +1,3 @@
+- 👋 Hi, I'm @thygunn
+- 👀 I am interested in Making Money Online.
+- 📫 How to contact me: You can reach me on instagram in my bio.
